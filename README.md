@@ -11,7 +11,7 @@ Referral Code: a4a85530
 
 2.Install the extension in your browser
 
-3,Get free Points for entering the Promo Code:
+3.Get free Points for entering the Promo Code:
 
 # a4a85530
 
