@@ -2,6 +2,7 @@
 # [🚀](https://account.network3.ai/register_page?rc=a4a85530)Network3 Referral Code (Free Points)
 
 Referral Code: a4a85530
+
 🔗 Link: [https://app.gradient.network/signup?code=67A6GQ](https://account.network3.ai/register_page?rc=a4a85530)
 
 📣 Farming free tokens in the extension, how to start?
